@@ -1,4 +1,4 @@
-# primera-entrega
+# Proyecto
 
 ## Participantes
 
