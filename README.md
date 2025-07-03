@@ -15,3 +15,5 @@
   **Programa:** Ingeniería Industrial Región
 
 LINK DEL VIDEO SEGUNDA ENTREGA: https://youtu.be/mE2eVDI3aMQ
+
+LINK DEL VIDEO ENTREGA FINAL: https://youtu.be/ojddLe3Zy2E
